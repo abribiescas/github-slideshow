@@ -6,4 +6,4 @@ title: "Social Media and Audience"
 
 Since social media was a success, business took advantage to market their products and services to their audiences. 
 
-Knowing that they could have a great amount of data on their audiences, their marketing strategies turned out for the better. 
+Knowing that the internet was free and they could have a great amount of data on their audiences, their marketing strategies turned out for the better. 
